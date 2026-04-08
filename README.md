@@ -1,1 +1,0 @@
-# prosjekt-objekt-privat-
